@@ -3,7 +3,7 @@
 - 🌱 I’m currently learning at Nanjing University
 - 💞️ I’m looking to collaborate on everything
 - 📫 How to reach me : email: hahahabigw@gmail.com
-- 🕸️ Read my blogs for more tutorials I wrote at [my website](blog.wyaaaattwho.xyz)
+- 🕸️ Read my blogs for more tutorials I wrote at [my website](https://blog.wyaaaattwho.xyz)
 - ⚡ Fun fact: I'm fucking Bi!
 
 <!---
